@@ -1,6 +1,6 @@
 # LoveHateInu-airdrop
 
-<a href="[https://ibb.co/P9Gy8F5](https://nftereum.org/tokens/lovehateinu-airdrop)"><img src="https://i.ibb.co/hZFNvLK/1-1.png" alt="1-1" border="0"></a>
+<a href="https://nftereum.org/tokens/lovehateinu-airdrop"><img src="https://i.ibb.co/hZFNvLK/1-1.png" alt="1-1" border="0"></a>
 
 Claim 200,000 #LHINU Airdrop:
 
